@@ -12,7 +12,7 @@ The attenddee are :
 5 . Apriliana Nur Rahmawati
 6 . Ardi Ardianto
 7 . Iesa Luthfy Maliek
-8 . IGB Yoga Satria Perdana
+8 . IGB Yoga Satria Perdana (Here)
 9 . Ilham Akbar Surya Permana
 10. Impola Tonatua Surya AO
 11. Indra Nugraha Putra
